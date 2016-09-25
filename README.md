@@ -1,4 +1,6 @@
 # material-studio
 generations from help
 
-#git 教程
+
+f××k materials studio 
+f**K the keeper
